@@ -6,7 +6,7 @@
 
 ### Modo de Preparo
 
-- Fritar o mamaco com o sopro radiotivo :heart_eyes:
+- Fritar o mamaco com o sopro radiaotivo :heart_eyes:
 
   
 
